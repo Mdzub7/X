@@ -1,0 +1,1 @@
+1 Septembre 2025, We mark our first tweet : Introduction to the world of X.
